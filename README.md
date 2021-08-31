@@ -1,1 +1,1 @@
-https://user-images.githubusercontent.com/37592026/130990206-6645fded-1f3f-4e80-b4fa-298b7ddb4ea9.mp4
+This largely just serves as "yet another backup" of the UndeadPeople Tileset, as SomeDeadGuy appears to be done with working on CDDA
